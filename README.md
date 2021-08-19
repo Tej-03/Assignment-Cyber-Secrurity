@@ -1,1 +1,1 @@
-# Assignment-Cyber-Secruruty
+# Assignment-Cyber-Secrurity
